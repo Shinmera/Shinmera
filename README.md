@@ -1,1 +1,1 @@
-[![HELLO](https://filebox.tymoon.eu/?upload=TWpZNU5nPT0%3D)](https://shinmera.com)
+[![HELLO](https://filebox.tymoon.eu//file/TWpZNU5nPT0=)](https://shinmera.com)
